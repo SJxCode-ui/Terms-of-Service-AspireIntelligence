@@ -1,1 +1,1 @@
-# Terms-of-Service-AspireIntelligence
+# Terms of Service ~ Aspire Intelligence
